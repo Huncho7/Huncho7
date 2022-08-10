@@ -1,4 +1,4 @@
-### Hi there 👋 whats up dawg
+### Hi there 👋 
 
 
 <!--
